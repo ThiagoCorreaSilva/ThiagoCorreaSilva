@@ -3,4 +3,4 @@
 #### 🟩 Algumas informações interessantes:
 ##### 🟩 Link do meu Linkedin: https://www.linkedin.com/in/thiago-corr%C3%AAa-da-silva/
 
-### Vamos começa? 👋
+### Vamos começar? 👋
